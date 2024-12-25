@@ -1,0 +1,1 @@
+# consumer_goods_ad_hoc_insight
